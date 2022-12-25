@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @fyzsrd
-- 👀 I’m interested in ...
+- 👀 I’m interested in 💞️
 - 🌱 I’m currently learning BCA
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on 👀
 - 📫 How to reach me fyz.srd@gmail.com
 
 <!---
